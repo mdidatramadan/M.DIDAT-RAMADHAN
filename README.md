@@ -1,2 +1,2 @@
 # M.DIDAT-RAMADHAN
-Hi, my name is M. Didat Ramadhan 1'm from Wonosobo, Jawa Tengah 
+Hi, my name is M. Didat Ramadhan i'm from Wonosobo, Jawa Tengah.
